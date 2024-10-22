@@ -18,6 +18,7 @@ academic research, statistics, writing and management.
 
 🔗 Get in touch with me! 
 jessica@redrat.com.br 
+
 https://www.linkedin.com/in/j%C3%A9ssica-assis-
 
 💡 Skills
