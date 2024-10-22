@@ -5,7 +5,9 @@ I'm Jéssica Maria 🤗
 🖥️ A little about me...
 
 Brazilian 🇧🇷
+
 Yogini and Circus Performer 🧘🏻‍♀️🎪
+
 I have a little cat 🐈
 
 👊🏼 I'm motivated to change careers to Data Analytics,
